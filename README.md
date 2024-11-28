@@ -32,7 +32,7 @@ Highly recommend you read my strawpage and carrd.
 ❤️ I have the basic DNI criteria. I shouldn't need to go into detail. Homophobes, anti-LGBTQ, racists, sexists, zoophiles, terfs, transphobes. and so forth, stay away from me. Thank you. If for whatever reason you're just an asshole to be an asshole or it's "cool", you can definitely stay away from me. Kindly do not make KYS jokes around me or dead baby jokes <- (IMPORTANT), thank you. I am not one for heavy dark humor. 
 
 
-❤️ Main run down ;; I am off-tab a lot. I accept cuddles, hiding behind, kisses, and boops on the silly pony game.  Please interact with me! Whether it is through open chat or whispers, I encourage interaction! I will say, I am an easily anxious and shy person, so I do apologize in advance. I usually am sitting with friends or alone, like I said, don't be afraid to interact with me. let me know if I can sit with you 💜. If for whatever reason I move away from you, chances are is I just got anxious.
+❤️ Main run down ;; I am off-tab a lot. I accept cuddles, hiding behind, kisses, and boops on the silly pony game.  Please interact with me! Whether it is through open chat or whispers, I encourage interaction! I will say, I am an easily anxious and shy person, so I do apologize in advance. I usually am sitting with friends or alone, like I said, don't be afraid to interact with me. let me know if I can sit with you 💜. If for whatever reason I move away from you, chances are is I just got anxious. I do love to roleplay! I find it very fun :). 
 
 
 ❤️ I am a HEAVY believer in kinning, comfort characters and ocs x canon. 100% if you don't support either, then maybe you and I shouldn't talk. 
@@ -43,7 +43,7 @@ Highly recommend you read my strawpage and carrd.
 
 ❤️ ;; I favorite Bucky Barnes, Hawkeye, Logan Howlett, Scott Summers, Natasha Romanoff,  Tony Stark, and Jean Grey when it comes to Marvel. Marvel seems to be my main and current fandom, haha.
 
-❤️ I am diagnosed with ADHD, Autism, and anxiety. I may not understand social cues. I am heavily expressive and will type in caps to express myself. I am a yapper once you get to know me. If I am yapping too much, please tell me. 
+❤️ I am diagnosed with ADHD, Autism, and anxiety. I may not understand social cues.  I am heavily expressive and will type in caps to express myself. I am a yapper once you get to know me. If I am yapping too much, please tell me. 
 
 
 ❤️ ;;;  My socials are open for everyone. Either you can paw around for them, or just ask. 
