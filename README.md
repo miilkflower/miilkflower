@@ -29,7 +29,7 @@ Highly recommend you read my strawpage and carrd.
 ❤️ Always 18+. I love sitting in the library, spawn, below the cafe, or the Marvel area. 
 
 
-❤️ I have the basic DNI criteria. I shouldn't need to go into detail. Homophobes, anti-LGBTQ, racists, sexists, zoophiles, terfs, transphobes. and so forth, stay away from me. Thank you. If for whatever reason you're just an asshole to be an asshole or it's "cool", you can definitely stay away from me. Kindly do not make KYS jokes around me or dead baby jokes <- (IMPORTANT), thank you. I am not one for heavy dark humor. 
+❤️ I have the basic DNI criteria. I shouldn't need to go into detail. Homophobes, Proshippers, Pedophiles, Supporters of ANY of these,  anti-LGBTQ, racists, sexists, zoophiles, terfs, transphobes. and so forth, stay away from me. Thank you. If for whatever reason you're just an asshole to be an asshole or it's "cool", you can definitely stay away from me. Kindly do not make KYS jokes around me or dead baby jokes <- (IMPORTANT), thank you. I am not one for heavy dark humor. 
 
 
 ❤️ Main run down ;; I am off-tab a lot. I accept cuddles, hiding behind, kisses, and boops on the silly pony game.  Please interact with me! Whether it is through open chat or whispers, I encourage interaction! I will say, I am an easily anxious and shy person, so I do apologize in advance. I usually am sitting with friends or alone, like I said, don't be afraid to interact with me. let me know if I can sit with you 💜. If for whatever reason I move away from you, chances are is I just got anxious. I do love to roleplay! I find it very fun :). 
