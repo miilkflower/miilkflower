@@ -37,7 +37,7 @@ Highly recommend you read my strawpage and carrd.
 ❤️ I am a HEAVY believer in kinning, comfort characters and ocs x canon. 100% if you don't support either, then maybe you and I shouldn't talk. 
 
 
-❤️ Fandoms and interests ;;; Marvel, I'm getting into the DC verse, My little pony, Slenderverse, Warrior cats, Stardew Valley, The Sims, Horror, FNAF, Homestuck, Creepypasta, Doctor Who, Nature / crime documentaries. 
+❤️ Fandoms and interests ;;; Marvel, I'm getting into the DC verse, My little pony, Slenderverse, Warrior cats, Stardew Valley, The Sims, Horror, FNAF, Creepypasta, Doctor Who, Nature / crime documentaries. 
 
 
 ❤️ ;; I favorite Bucky Barnes, Hawkeye, Logan Howlett, Scott Summers, Natasha Romanoff,  Tony Stark, and Jean Grey when it comes to Marvel. Marvel seems to be my main and current fandom, haha.
