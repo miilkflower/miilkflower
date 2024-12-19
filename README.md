@@ -6,7 +6,7 @@ Inspo from @Johnnyslaughter
 Ponytown Information. Please read. General information as well.
 
 
-You can call me......  Aradia | Hal | Amie 
+You can call me......  HAL | AMIE | ARADIA 
 
 
 Most nicknames are fine. 
