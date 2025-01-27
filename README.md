@@ -6,8 +6,7 @@ Inspo from @Johnnyslaughter
 Ponytown Information. Please read. General information as well.
 
 
-You can call me......  HAL | AMIE | ARADIA 
-
+You can call me......  HAL | STRAWBERRY
 
 Most nicknames are fine. 
 
@@ -40,7 +39,7 @@ Highly recommend you read my strawpage and carrd.
 ❤️ Fandoms and interests ;;; Marvel, I'm getting into the DC verse, My little pony, Slenderverse, Warrior cats, Stardew Valley, The Sims, Horror, FNAF, Creepypasta, Doctor Who, Nature / crime documentaries. 
 
 
-❤️ ;; I favorite Bucky Barnes, Hawkeye, Logan Howlett, Scott Summers, Natasha Romanoff,  Tony Stark, and Jean Grey when it comes to Marvel. Marvel seems to be my main and current fandom, haha.
+❤️ ;; I favorite Bucky Barnes, Hawkeye, Logan Howlett, Scott Summers, Natasha Romanoff,  Tony Stark, and Jean Grey when it comes to Marvel. Marvel seems to be my main and current fandom, haha. Bucky, Logan, and Natasha are comforts.
 
 ❤️ I am diagnosed with ADHD, Autism, and anxiety. I may not understand social cues.  I am heavily expressive and will type in caps to express myself. I am a yapper once you get to know me. If I am yapping too much, please tell me. 
 
