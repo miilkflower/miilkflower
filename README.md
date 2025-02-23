@@ -6,7 +6,7 @@ Inspo from @Johnnyslaughter
 Ponytown Information. Please read. General information as well.
 
 
-You can call me......  HAL | STRAWBERRY
+You can call me......  HAL | STRAWBERRY | HALPINE
 
 Most nicknames are fine. 
 
